@@ -1,1 +1,1 @@
-# Mindset-AI-Level-1-Tasks-
+# Mindset-AI-Level-1-Tasks
